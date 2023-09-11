@@ -1,5 +1,5 @@
-### Hi there 👋
-Donald Ray D. Cadacio
+### 
+Name: Donald Ray D. Cadacio
 
 Course & Year: BSIT 3-1
 
